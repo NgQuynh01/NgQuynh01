@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NgQuynh01
-- 👀 I’m interested in .. Nũ.
+- 👀 I’m interested in .. Nữ.
 - 🌱 I’m currently learning  core
 - 💞️ I’m looking to collaborate on ...Pc
 - 📫....<.>
